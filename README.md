@@ -1,0 +1,2 @@
+# About-Abioye
+I am a very talented Computer expert, i solve computer and gadget problems without even knowing i could, to me it's just  like a blessing from God. I teach myself new things regarding computing without stress with the power of the Internet.  My life is all about computers and gadget. Working for your company to me will be a chance to explore new things, new  computer problems. The more computer problems i am able to solve, the more experienced i get.
